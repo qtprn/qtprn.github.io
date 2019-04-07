@@ -1,1 +1,0 @@
-# qtprn.github.io
